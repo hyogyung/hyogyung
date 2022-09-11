@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+My name is HyoGyung KO.   
+I'm a student in the Department of Artificial Intelligence at Gachon University.   
+I don't know what can I do for filling up here yet.   
+Maybe here will be filled with my self introduction after some time.
